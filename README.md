@@ -13,5 +13,10 @@ he deregulated the media forming Fox 'news'. Stupid 'boomers' only news source.
 
 7.2 million Americans march against Trump and his sycophants & are labelled Hamas and anti-democrats. No arrests. No injuries=. No murders.
 
-
+#Neo-liberalism 
+- Neoliberalism is a political and economic philosophy that emphasizes free-market capitalism, deregulation, and minimal 
+government intervention in the economy. It advocates for shifting economic control from the public sector to the private sector and 
+promotes policies such as privatization, free trade, and fiscal austerity. The term was coined in the 1930s but gained prominence in the 
+1970s and 1980s as a response to perceived failures of state-led economic models. It is heavily associated with the policies implemented 
+by leaders like U.K. Prime Minister Margaret Thatcher and U.S. President Ronald Reagan.
 
