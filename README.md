@@ -9,7 +9,7 @@ The pace of lowering taxes for bilolonaires and corpoate people-hood is astoundi
 Trillions have moved from EVERYONE to the greediest .001% just since 1984. Reaganomics is killing democracy. Reagan was worse than Trump.
 He deregulated big oil and made the world filthy and uninhabitable.
 
-he deregulated the media forming Fox 'news'. Stupid 'boomers' only news source. 
+He deregulated the media forming Fox 'news'. Stupid 'boomers' only news source. 
 
 7.2 million Americans march against Trump and his sycophants & are labelled Hamas and anti-democrats. No arrests. No injuries=. No murders.
 
