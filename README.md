@@ -11,7 +11,7 @@ He deregulated big oil and made the world filthy and uninhabitable.
 
 He deregulated the media forming Fox 'news'. It's stupid 'boomers' only news source. 
 
-7.2 million Americans march against Trump and his sycophants & are labelled Hamas and anti-democrats. No arrests. No injuries=. No murders.
+7.2 million Americans march against Trump and his sycophants & are labelled Hamas and anti-democrats. No arrests. No injuries. No damages.
 
 # Neo-liberalism 
 - Neoliberalism is a political and economic philosophy that emphasizes free-market capitalism, deregulation, and minimal 
